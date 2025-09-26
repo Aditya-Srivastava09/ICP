@@ -1,2 +1,0 @@
-# ICP
-Infinity champion group
